@@ -1,0 +1,1 @@
+Add milkand flour and mix them nicely. Then add chocolate powder and some bakking soda. Now stir it nicely and add some chocochips. Now bake it in the oven for 30 mins and u have your cake ready.
